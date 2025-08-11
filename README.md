@@ -10,4 +10,7 @@ Cybersecurity professional & robotics teacher offering expert guidance on ethica
 * **From**: India 
 * **Helping**: You with tech stuff!
 
+[![REDIRECT TO ArunHax ChatBot](https://img.shields.io/badge/REDIRECT%20TO%20ArunHax%20ChatBot-blue?style=for-the-badge)](https://aistudio.instagram.com/ai/1319074609640019?utm_source=ai_agent)
+
+
 
